@@ -4,5 +4,5 @@
 - 💞️ I’m eager to collaborate with other artists and programmers on exciting projects.
 - 📫 Let’s connect!  You can reach me at contact@misterink.art.
 - 😄 Pronouns: He
-- ⚡ Fun fact: II embrace the beginner's mindset, and I'm determined to level up my skills this year.
+- ⚡ Fun fact: I embrace the beginner's mindset, and I'm determined to level up my skills this year.
 
